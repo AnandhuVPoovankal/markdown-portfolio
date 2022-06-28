@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* HIMALAYA HOTEL
+* ARYAS HOTEL
+* AMBADY HOTEL
